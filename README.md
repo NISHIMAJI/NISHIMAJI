@@ -11,4 +11,4 @@
 <p> feel free to leave something on my strawpage :7</p>
 <img width="200" height="300" alt="109375521_0nV4C0FbJYmaycB" src="https://github.com/user-attachments/assets/907ecacd-fc64-48b3-a1f7-3f7d5c4e3625"/>
 
-![108036409_Nr65AzqwgkUX40i](https://github.com/user-attachments/assets/75eab0a9-7bbb-4e54-9449-c33ada09c308)
+<img width="200" height="300" alt="109375521_0nV4C0FbJYmaycB" src="https://files.catbox.moe/c74rd7.gif"/>
